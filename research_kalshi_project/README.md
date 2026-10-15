@@ -1,1 +1,0 @@
-# kalshi-favorite-longshot-bias
